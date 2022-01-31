@@ -1,0 +1,1 @@
+# lg6.2-2ndgradedexercise
